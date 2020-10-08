@@ -1,2 +1,0 @@
-# ch
-skillshare course
